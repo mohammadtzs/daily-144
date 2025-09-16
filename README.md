@@ -1,3 +1,4 @@
 # daily-144
 working on 144
 good life , good friends , good family , thanks for everything's my dear god :)
+i w8ing for sell now . i hope next week i can buy gold land :)
