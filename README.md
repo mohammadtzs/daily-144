@@ -8,4 +8,4 @@ good day
 trying for sale , i know happend best for me
 nice day
 tnx god++
-i realy thanks for every breathing everyday , love you Dear God
+i realy thanks for every breathing everyday , love you Dear God..
